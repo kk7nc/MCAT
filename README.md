@@ -1,6 +1,6 @@
 ## Top 50 Medical Schools Based on MCAT Scores
 
-![Top 25 Medical Schools ](https://posts.ucubemedia.net/posts/media/2053/3eb0e9ed-f484-4881-99b3-81031370adb6_65_pasted%20image%200.png)
+![Top 25 Medical Schools ](https://posts.ucubemedia.net/posts/media/2053/3eb0e9ed-f484-4881-99b3-81031370adb6_82__88996411-bf35-4734-b488-9fc6a4548497.jpg)
 
 # Oraginal Article **[Top 25 Medical Schools Based on MCAT Scores 2024–2025](https://www.universitycube.net/posts/top-25-medical-schools-based-on-mcat-scores-20242025-1725940073618)**
 
